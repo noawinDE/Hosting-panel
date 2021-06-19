@@ -11,5 +11,8 @@ Eine umprogrammierung ist ebenso erlaubt.
 Was jedoch weiterhin untersagt ist, ist der Verkauf dieses
 Panels.
 
-Bei Fragen, Problemen oder Anregungen kann man mich
-auf Twitter erreichen: https://twitter.com/saveoriginal
+Bei Fragen, Problemen oder Anregungen kann man mich oder Nico R.
+auf Twitter erreichen: https://twitter.com/XCasaTS
+oder
+https://twitter.com/saveoriginal
+
